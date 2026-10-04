@@ -1,2 +1,2 @@
-# Sebelum-ka-mengucapkan-selamat-tinggall
+# Sebelum-kita-mengucapkan-selamat-tinggall
 perjalanan pulangl
