@@ -1,0 +1,1 @@
+# Sebelum-kita-mengucapkan-selamat-tinggall
